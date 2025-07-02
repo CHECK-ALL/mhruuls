@@ -1,18 +1,23 @@
-# ИНФО
+![](https://github.com/user-attachments/assets/ef299903-b718-4b26-959f-36e100620d70)
 
-## Зоны
-- Спавн — FFA зона
-- tp dd — Дуэльная зона
+# Welcome to Noobs Duels Kingdom™
 
-## Наказания / Punishments
-- FFA in Duel Zone
-- Cheating [Permanent BAN]
+<a id="Click Here to Join Noobs Duels Kingdom™ Discord Server">https://discord.gg/4geAu88gvM</>
 
-## Общее
-- Проверьте команды в чате: help
-- Есть два вида телепорта: tp dd и просто dd
+**Server Rules:**
+* Do not discriminate against someone's race, religion etc.
+* Do not FFA, Revenge FFA or Mass FFA outside of designated FFA zones.
+* Do not force anyone to duel with kicks, feints, etc.
+* Do not walk into duels.
+* Friendly FFA is allowed but only when done in a TP away from the main map.
+* Advertising is prohibited.
+* Third party applications, or other forms of cheating, are not allowed.
+* Rocks, Crossbows, Bear Traps, Toolboxes and Fire & Smoke Bombs are not allowed in duel zone.
+* Beartraps not allowed on ffa entrance same as nonstop firebombs or spikes what can block it.
 
-### Приобрести VIP-набор: 
+**Map Rules:**
 
-### Наш дискорд про турниры, ивенты и обновления:
-- Adamantium FORGE
+![](https://github.com/user-attachments/assets/6cc07765-be8e-4142-84cf-a629b998aaa6)
+
+
+![](https://github.com/user-attachments/assets/2588641c-8db5-484a-b437-22a9c8c64b28)
