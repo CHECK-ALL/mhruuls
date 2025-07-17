@@ -1,3 +1,3 @@
-![](https://github.com/user-attachments/assets/db76d8a8-f081-4b8c-a3ea-fda0f2a6930f)
-<a id="                        Click Here to Join Noobs Duels Kingdom™ Discord Server">https://discord.gg/N9HMTBF7gU</>
-![](https://github.com/user-attachments/assets/5d5637e7-2517-4dde-9a4e-669ea82fdaab)
+![](https://github.com/user-attachments/assets/ffdcbfc0-3666-4fd1-806f-8b4caacf6e2a)
+<a id="                        Click Here to Join Noobs Duels Kingdom™ Discord Server">https://discord.gg/VCc2dkD9FN</>
+![](https://github.com/user-attachments/assets/acef0f76-ce29-450c-b755-9f1db2f2383c)
